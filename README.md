@@ -1,11 +1,5 @@
-Settings
 Privacy Policy Preview
 
-ADD TO WEBSITE
-
-EDIT
-
-DELETE
 PRIVACY NOTICE
 
 Last updated January 23, 2023
